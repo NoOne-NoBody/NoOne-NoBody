@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @NoOne-NoBody
 - 👀 I’m interested in Everything that Helps Us Find the Truth
 - 🌱 I’m currently learning The Life Better
-- 💞️ I’m looking to collaborate on Project aims at Public Awareness
+- 💞️ I’m looking to collaborate on Projects aim at Public Awareness
 - 📫 How to reach me ...
 
 <!---
